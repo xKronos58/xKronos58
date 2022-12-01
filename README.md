@@ -1,4 +1,4 @@
-<div class="tenor-gif-embed" data-postid="22552021" data-share-method="host" data-aspect-ratio="1" data-width="100%"><a href="https://tenor.com/view/spin-fish-fishing-funny-gif-22552021">Spin Fish GIF</a>from <a href="https://tenor.com/search/spin-gifs">Spin GIFs</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>
+![]([https://media0.giphy.com/media/3otPorWLQJq5GmHRtu/giphy.gif](https://tenor.com/view/spin-fish-fishing-funny-gif-22552021))
 
 <!--
 **xKronos58/xKronos58** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
